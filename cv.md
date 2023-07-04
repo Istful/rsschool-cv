@@ -6,7 +6,7 @@
 Contact information:<br>
 Phone: +7(927)9999999<br>
 E-mail: yurichakalov@gmail.com<br>
-Telegram: @yuri<br>
+Telegram: @istful_original<br>
 
 <hr>
 
