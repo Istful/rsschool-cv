@@ -5,7 +5,7 @@
 
 Contact information:<br>
 Phone: +7(927)9999999<br>
-E-mail: gchakalov@gmail.com<br>
+E-mail: yurichakalov@gmail.com<br>
 Telegram: @yuri<br>
 
 <hr>
